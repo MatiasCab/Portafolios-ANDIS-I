@@ -6,6 +6,7 @@ Contenido extra a parte de los TAs de clase:
 
 -TA7: Se hizo de manera domiciliaria con mis compañeros.
 -TA9: Lo hice de manera individual como practica de parcial.
+-Trabajo de final de unidad: Docmento y PPT
 -Mapa conceptual del cap 8: Se hizo a modo de estudio.
 -Subrayado de cap 8, 10 y 11 del libro de la unidad.
 -Fotos de practica a mano de los TAs de la UT1 y UT2 para el parcial.
