@@ -5,6 +5,8 @@ Recomendaciones como delegado titular de la carrera:
 
 -En la ultima parte estaria bueno que la entrega del TFU y el parcial se sepraran un poco mas.
 
+-
+
 Cosas buenas:
 
 -Elegir equipo para mi fue muy buena decisión.
@@ -12,3 +14,5 @@ Cosas buenas:
 -La modalidad estuvo buena.
 
 -Muy copados los profes.
+
+-El orden esta muy bueno.
